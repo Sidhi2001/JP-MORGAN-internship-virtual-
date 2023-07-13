@@ -1,1 +1,1 @@
-# JP-MORGAN-internship-virtual-
+# JP-MORGAN-virtual-internship
